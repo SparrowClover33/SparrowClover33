@@ -14,17 +14,11 @@
 
 
 
-- I like collecting LPS, keychains, stickers etc. So you can spot me sometimes in some polish conventions! ![tumblr_9b4986897d09b591cf5819a9fa000855_061e7bec_75](https://github.com/user-attachments/assets/62325a70-fdd1-4486-a929-4f00b29a2a5d)
+- I like collecting LPS, keychains, stickers etc. ![tumblr_9b4986897d09b591cf5819a9fa000855_061e7bec_75](https://github.com/user-attachments/assets/62325a70-fdd1-4486-a929-4f00b29a2a5d)
 
-- I'm trying to buy new cosplays to get into conventions, I'm trying to be from some anime or games so far of characters I like or relate, I sadly can't sew for now :(
-
-- I can get a bit overhelmed about some stuff, so please try to understand if I might go slow or suddenly off when someone wants to talk to me, thank you!
-
-- I'm sorry if I can come out a bit shy and a little dry in conversations, but I usually walk alone at cons. I'm trying to sociallize so don't be shy about talking some stuff
+- I can get a bit overhelmed about some stuff, so please try to understand if I might go slow or suddenly off when someone wants to talk to me, thank you! ![tumblr_e5a27de2a1cf76d21e70409b44237f67_33125a80_75](https://github.com/user-attachments/assets/16e836f9-eadf-4264-b55b-7c63424d5ced)
 
 - I like drawing sometimes, but I'm sadly not talented like artists </3 ![tumblr_33b7af24fa21c5d54d64245c9d5739b6_80046bd0_75](https://github.com/user-attachments/assets/12dc31a5-96cb-431b-92f3-132f54dab858)
-  
-- So far I'm not wearing eye contacts for cosplays for now, but maybe one day ;) ![tumblr_e5a27de2a1cf76d21e70409b44237f67_33125a80_75](https://github.com/user-attachments/assets/16e836f9-eadf-4264-b55b-7c63424d5ced)
 
 - I like listening to music! Any types of music, even the ones I hate there's few that I like lolz ![tumblr_20d6a95406bd74a8531a785056ce3752_b1f60374_75](https://github.com/user-attachments/assets/84250806-d3dd-47db-9a14-42cde07d6767)
 
@@ -42,13 +36,13 @@
 - General people like: homophobes, racists etc. Also PLS DON'T ASK ABT POLITICS ty!
 - Horndogs (I sadly met few before </3)
 - People who are rude in general
-
+- I don't like pointing this out, but close friends of someone who I had drama months ago outside and in PT. They probably know who I am talking about, but I don't wanna get into this conversation again and this also made a scar on me so please DNI thank you!
 
 
 
 IWC:
-- Everyone knows this rule, but pls don't don't approach on convention if I'm eating and ask for a pic, surerly we can take few after my break!
-- People below 17 years old, it's because I'm adult some people can mistake me for 15 year old so dw! Just please then keep interactions to minimum after I ask for photo or you do thx!
+- People below 17 years old, I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
+- I sometimes need some time alone, so I probably move somewhere alone, but please don't cover me or bother when I have DNI, thank you!
 
 
 
@@ -64,6 +58,9 @@ Stuff I'm into so far:
 - There's few more, so ask! I don't bite haha!
   
 
+
+
+I'm not giving Discord so far to randoms, hope you understand. Ask for it if you're my friend.
 
 I think that's all, BAII!!
 
