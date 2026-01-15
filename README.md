@@ -36,7 +36,7 @@
 - General people like: homophobes, racists etc. Also PLS DON'T ASK ABT POLITICS ty!
 - Horndogs (I sadly met few before </3)
 - People who are rude in general
-- I don't like pointing this out, but close friends of someone who I had drama months ago outside and in PT. They probably know who I am talking about, but I don't wanna get into this conversation again and this also made a scar on me so please DNI thank you!
+- I don't like pointing this out, but close friends (+ the person I'm mentioning without name) of someone who I had drama months ago outside and in PT. They probably know who I am talking about, but I don't wanna get into this conversation again and this also made a scar on me so please DNI thank you!
 
 
 
