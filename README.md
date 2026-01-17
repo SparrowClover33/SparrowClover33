@@ -36,6 +36,7 @@
 - General people like: homophobes, racists etc. Also PLS DON'T ASK ABT POLITICS ty!
 - Horndogs (I sadly met few before </3)
 - People who are rude in general
+- People copying my skins
 - I don't like pointing this out, but close friends (+ the person I'm mentioning without name) of someone who I had drama months ago outside and in PT. They probably know who I am talking about, but I don't wanna get into this conversation again and this also made a scar on me so please DNI thank you!
 
 
@@ -43,7 +44,7 @@
 IWC:
 - People below 17 years old, I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
 - I sometimes need some time alone, so I probably move somewhere alone, but please don't cover me or bother when I have DNI, thank you!
-
+- TADC fans, especially the ones from Safe 1, I have bad experience with them and I saw there's still some toxicity going around there with copying styles etc.
 
 
 Stuff I'm into so far:
