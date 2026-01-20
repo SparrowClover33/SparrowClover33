@@ -9,7 +9,7 @@
 
 
 
-![tumblr_5bfc8241bd4b4b0a301992d772afcf39_e74d12d5_75](https://github.com/user-attachments/assets/f557614e-c297-4526-b619-7d41d2748444)  Since I'm not good at making Carrd or other websites I decided to make some stuff abt me here!
+Since I'm not good at making Carrd or other websites I decided to make some stuff abt me here!
 
 
 
