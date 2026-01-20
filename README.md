@@ -26,6 +26,10 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 
 - I'm a sweet tooth... ![tumblr_08bcfb518846e68c85550fbe79acb569_ee2b80f7_75](https://github.com/user-attachments/assets/56c24f4a-019a-497f-8be4-aa935139aa3c)
 
+ - I don't RP, I might do it for funsies but I'm not doing any serious RP srry
+ 
+- Small note, I WILL hide you and block if you're making me uncomfortable or cover me when I don't want to (it doesn't trigger me, but mann there's like so many space often where I siit)
+
 
 
 
@@ -40,7 +44,7 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 - I don't like pointing this out, but close friends (+ the person I'm mentioning without name) of someone who I had drama months ago outside and in PT. They probably know who I am talking about, but I don't wanna get into this conversation again and this also made a scar on me so please DNI thank you!
 - Hazbin fans sort of, I like cosplays of ppl but that's pretty much it, I don't hate someone liking it tho
 - TADC fans, especially the ones from Safe 1 (same thing like with Hazbin fans that you good if you like it and we good too). I have bad experience with them and I saw there's still some toxicity going around there with copying styles, dramas etc.
-- Small note, I WILL hide you and block if you're making me uncomfortable or cover me when I don't want to (it doesn't trigger me, but mann there's like so many space often where I siit)
+
 
 
 IWC:
