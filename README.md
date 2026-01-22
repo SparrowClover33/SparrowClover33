@@ -56,7 +56,7 @@ IWC:
 Stuff I'm into so far:
 
 - TADC (Almost any Glitch show ngl)
-- Uma Musume (a bit, I got a little rusty in game lately sorry TwT)
+- Uma Musume (a bit, I got a little rusty in game lately sorry)
 - Madoka Magica
 - Animal Crossing (mostly New Leaf because I only own 3DS)
 - Smiling Friends
