@@ -70,6 +70,7 @@ Stuff I'm into so far:
 I'm not giving Discord so far to randoms, hope you understand. Ask for it if you're my friend.
 
 I think that's all, BAII!!
+(Yamper pic made by me)
 
 ![tumblr_3f9c83bd7615bf759a0209847fe547cf_599b8103_500](https://github.com/user-attachments/assets/fc3a5921-98f0-4c3c-b04a-8fb2d4e07927)
 
