@@ -45,12 +45,13 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 - TADC fans, especially the ones from Safe 1 (same thing like with Hazbin fans that you good if you like it and we good too). I have bad experience with them and I saw there's still some toxicity going around there with copying styles, dramas etc.
 - Horndogs,Genital,NSFW in general ponies & people who tries to have pony sex (idc if it's for jokes, you're getting blocked or hidden)
 - DSMP fans
+- Forsaken fans (this is more to minors because they are weird sometimes ngl)
 
 
 IWC:
 - People below 17 years old, I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
 - I sometimes need some time alone, so I probably move somewhere alone, but please don't cover me or bother when I have DNI, thank you!
-
+- South Park fans
 
 
 Stuff I'm into so far:
