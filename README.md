@@ -37,7 +37,7 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 - General people like: homophobes, racists etc. Also PLS DON'T ASK ABT POLITICS ty!
 - People who are rude in general
 - People copying my skins
-- I don't like pointing this out, but close friends (+ the person I'm mentioning without name) of someone who I had drama months ago outside and in PT. They probably know who I am talking about, but I don't wanna get into this conversation again and this also made a scar on me so please DNI thank you!
+- I don't like pointing this out, but close friends (+ the person I'm mentioning without name) of someone who I had drama months ago outside and in PT in TADC fandom. They probably know who I am talking about, but I don't wanna get into this conversation again and this also made a scar on me so please DNI thank you!
 - TADC fans, especially the ones from Safe 1 (I like cosplays of ppl but that's pretty much it, though you good if you like it and we good too). I have bad experience with them and I saw there's still some toxicity going around there with copying styles, dramas etc.
 - Horndogs,Genital,NSFW in general ponies & people who tries to have pony sex (idc if it's for jokes, you're getting blocked or hidden)
 - DSMP fans
