@@ -3,7 +3,7 @@
 ![tumblr_efac8f49d7c9191fbc073e4cc697a787_ca54ae33_400](https://github.com/user-attachments/assets/07d2aa61-7352-4853-98ac-4c9e467a0eb7)
 
 Hiya, you can call me Soda or Clover!
-<img width="1920" height="620" alt="7e5c43aee3b770da0c9be62c298971cc" src="https://github.com/user-attachments/assets/7d6be37f-04c1-4090-b407-d6ad7bbab415" />
+![tumblr_9f6ae8bde4cd5a591ceae9c7a6844a26_4ecb17f1_1280](https://github.com/user-attachments/assets/7db9fe41-ac40-476e-927c-623e37b85cf0)
 
 
 Since I'm not good at making Carrd or other websites I decided to make some stuff abt me here! ![tumblr_16c879c06c5986e4fd952400599aff07_50d3cffa_75](https://github.com/user-attachments/assets/d2247201-2012-4991-855d-e2c598a88562) 
