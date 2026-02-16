@@ -67,6 +67,7 @@ Stuff I'm into so far:
 
 
 I'm not giving Discord so far to randoms, hope you understand. Ask for it if you're my friend.
+I don't have ata or straw since I am bad person and I don't want much randoms to interact with me anonymously or anything.
 
 I think that's all, BAII!!
 (Yamper pic made by me)
