@@ -58,7 +58,6 @@ Stuff I'm into so far:
 - Uma Musume (a bit, I got a little rusty in game lately sorry)
 - Madoka Magica
 - Animal Crossing (mostly New Leaf because I only own 3DS)
-- Smiling Friends
 - Severance
 - Ena (Season 1 and 2 obv!)
 - There's few more, so ask! I don't bite haha!
