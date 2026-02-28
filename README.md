@@ -59,6 +59,7 @@ Stuff I'm into so far:
 - Madoka Magica
 - Animal Crossing (mostly New Leaf because I only own 3DS)
 - Severance
+- The Maxx
 - Ena (Season 1 and 2 obv!)
 - There's few more, so ask! I don't bite haha!
   
