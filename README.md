@@ -46,7 +46,7 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 - MINORS who are in 18+ server (I think it's obvious why '-')
 
 IWC:
-- People below 17 years old, I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
+- People below 18 years old, I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
 - Hazbin fans sort of, I like cosplays of ppl but that's pretty much it, I don't hate someone liking it tho
 - I sometimes need some time alone, so I probably move somewhere alone, but please don't cover me or bother when I have DNI, thank you!
 - South Park fans
