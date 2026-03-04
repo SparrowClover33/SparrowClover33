@@ -4,7 +4,7 @@
 
 Hiya, you can call me Soda or Clover!
 
-![tumblr_9f6ae8bde4cd5a591ceae9c7a6844a26_4ecb17f1_1280](https://github.com/user-attachments/assets/7db9fe41-ac40-476e-927c-623e37b85cf0)
+![35930](https://github.com/user-attachments/assets/4300aea6-64cb-41ab-84c8-e05e229705d0)
 
 
 Since I'm not good at making Carrd or other websites I decided to make some stuff abt me here! ![tumblr_16c879c06c5986e4fd952400599aff07_50d3cffa_75](https://github.com/user-attachments/assets/d2247201-2012-4991-855d-e2c598a88562) 
