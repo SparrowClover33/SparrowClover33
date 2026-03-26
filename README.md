@@ -18,7 +18,7 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 
 - I like drawing sometimes, but I'm sadly not talented like artists </3 
 
-- I like listening to music! Any types of music, even the ones I hate there's few that I like lolz ![tumblr_20d6a95406bd74a8531a785056ce3752_b1f60374_75](https://github.com/user-attachments/assets/84250806-d3dd-47db-9a14-42cde07d6767)
+- I like listening to music! Any types of music tbh, but I do have some own preferences
 
 - My favourite animals are birbs! Specific sparrows (duh), magpies, crows, ravens, barn owls and rooks! 
 
