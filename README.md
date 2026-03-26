@@ -12,11 +12,11 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 
 
 
-- I like collecting LPS, keychains, stickers etc. ![tumblr_9b4986897d09b591cf5819a9fa000855_061e7bec_75](https://github.com/user-attachments/assets/62325a70-fdd1-4486-a929-4f00b29a2a5d)
+- I like collecting LPS, keychains, stickers etc.
 
-- I can get a bit overhelmed about some stuff, so please try to understand if I might go slow or suddenly off when someone wants to talk to me, thank you! ![tumblr_e5a27de2a1cf76d21e70409b44237f67_33125a80_75](https://github.com/user-attachments/assets/16e836f9-eadf-4264-b55b-7c63424d5ced)
+- I can get a bit overhelmed about some stuff, so please try to understand if I might go slow or suddenly off when someone wants to talk to me, thank you!
 
-- I like drawing sometimes, but I'm sadly not talented like artists </3 ![tumblr_33b7af24fa21c5d54d64245c9d5739b6_80046bd0_75](https://github.com/user-attachments/assets/12dc31a5-96cb-431b-92f3-132f54dab858)
+- I like drawing sometimes, but I'm sadly not talented like artists </3 
 
 - I like listening to music! Any types of music, even the ones I hate there's few that I like lolz ![tumblr_20d6a95406bd74a8531a785056ce3752_b1f60374_75](https://github.com/user-attachments/assets/84250806-d3dd-47db-9a14-42cde07d6767)
 
