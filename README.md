@@ -6,6 +6,8 @@ Hiya, you can call me Soda or Clover!
 
 ![35930](https://github.com/user-attachments/assets/4300aea6-64cb-41ab-84c8-e05e229705d0)
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=2CBAF7&width=435&lines=%22The+boy%2C+the+boy's+in+love...%22" alt="Typing SVG" /></a>
+
 
 Since I'm not good at making Carrd or other websites I decided to make some stuff abt me here! ![tumblr_16c879c06c5986e4fd952400599aff07_50d3cffa_75](https://github.com/user-attachments/assets/d2247201-2012-4991-855d-e2c598a88562) 
 
@@ -76,6 +78,7 @@ I think that's all, BAII!!
 
 ![tumblr_3f9c83bd7615bf759a0209847fe547cf_599b8103_500](https://github.com/user-attachments/assets/fc3a5921-98f0-4c3c-b04a-8fb2d4e07927)
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B81414&width=435&lines=%22Come+on+and+kill+me+baby...;...While+you+smile+like+a+friend.%22" alt="Typing SVG" /></a>
 
 ![IMG_20250502_113105](https://github.com/user-attachments/assets/cdd29b8a-a14f-4579-aa42-bb3f449093eb)
 
