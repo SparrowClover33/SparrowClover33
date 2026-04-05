@@ -16,7 +16,7 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 
 - I like collecting LPS, keychains, stickers etc.
 
-- I can get a bit overhelmed about some stuff, so please try to understand if I might go slow or suddenly off when someone wants to talk to me, thank you!
+- I can get a bit overwhelmed about some stuff, so please try to understand if I might go slow or suddenly off when someone wants to talk to me, thank you!
 
 - I like drawing sometimes, but I'm sadly not talented like artists </3 
 
