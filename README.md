@@ -53,8 +53,6 @@ IWC:
 - Hazbin fans sort of, I like cosplays of ppl but that's pretty much it, I don't hate someone liking it tho
 - I sometimes need some time alone, so I probably move somewhere alone, but please don't cover me or bother when I have DNI, thank you!
 - South Park fans
-- Chappell Roan fans
-
 
 Stuff I'm into so far:
 
