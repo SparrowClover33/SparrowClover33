@@ -18,9 +18,9 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 
 - I can get a bit overwhelmed about some stuff, so please try to understand if I might go slow or suddenly off when someone wants to talk to me, thank you!
 
-- I like drawing sometimes, but I'm sadly not talented like artists </3 
+- I like drawing sometimes, but I'm sadly not talented like artists
 
-- I like listening to music! Any types of music tbh, but I do have some own preferences
+- I like listening to music!
 
 - My favourite animals are birbs! Specific sparrows (duh), magpies, crows, ravens, barn owls and rooks! 
 
@@ -30,7 +30,7 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
  
 - Small note, I WILL hide you and block if you're making me uncomfortable or cover me when I don't want to (it doesn't trigger me, but mann there's like so many space often where I sit)
 
-- If you ask, yes I don't like bothering people so if I come out as dry sorry in advance, I'm more of introverted person myself (I have also mood swings, but I tend to avoid going on PT when I'm having this, just saying in advance how BAD I am)
+- If you ask, yes I don't like bothering people so if I come out as dry sorry in advance, I'm more of introverted person myself (I have also mood swings, but I tend to avoid going on PT when I'm having this, just saying in advance how BAD I am, but I probably am horrible to be your friend so don't bother)
 
 
 ![tumblr_da08077939a1d3b803d2d44b93e0ac63_7bbcff3b_75](https://github.com/user-attachments/assets/d22f9dce-9324-4e8b-9ff1-2d8dbcae6461) DNI: ![tumblr_f768a9798216e7242c4a6dc45c419258_67afbb3c_75](https://github.com/user-attachments/assets/dec2107c-e1fc-4ec9-ab13-f4add4a787b5)
