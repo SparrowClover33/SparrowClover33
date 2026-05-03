@@ -26,13 +26,16 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 
 - I'm a sweet tooth... ![tumblr_08bcfb518846e68c85550fbe79acb569_ee2b80f7_75](https://github.com/user-attachments/assets/56c24f4a-019a-497f-8be4-aa935139aa3c)
 
+
+  Small beware before you interact with me:
+
  - I don't RP, I might do it for funsies but I'm not doing any serious RP srry
  
 - Small note, I WILL hide you and block if you're making me uncomfortable or cover me when I don't want to (it doesn't trigger me, but mann there's like so many space often where I sit)
 
 - If you ask, yes I don't like bothering people so if I come out as dry sorry in advance, I'm more of introverted person myself (I have also mood swings, but I tend to avoid going on PT when I'm having this, just saying in advance how BAD I am)
 
--I tend to avoid groups so if I suddenly leave, you know probably why. I just don't like it.
+- I tend to avoid groups so if I suddenly leave, you know probably why. I just don't like it.
 
 
 ![tumblr_da08077939a1d3b803d2d44b93e0ac63_7bbcff3b_75](https://github.com/user-attachments/assets/d22f9dce-9324-4e8b-9ff1-2d8dbcae6461) DNI: ![tumblr_f768a9798216e7242c4a6dc45c419258_67afbb3c_75](https://github.com/user-attachments/assets/dec2107c-e1fc-4ec9-ab13-f4add4a787b5)
