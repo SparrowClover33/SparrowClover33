@@ -26,8 +26,10 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 
 - I'm a sweet tooth... ![tumblr_08bcfb518846e68c85550fbe79acb569_ee2b80f7_75](https://github.com/user-attachments/assets/56c24f4a-019a-497f-8be4-aa935139aa3c)
 
+.
+                                     **Small beware before you interact with me:**
 
-  Small beware before you interact with me:
+                                    
 
  - I don't RP, I might do it for funsies but I'm not doing any serious RP srry
  
