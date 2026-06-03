@@ -44,7 +44,7 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 
 - Alex's Playhouse fans
 - TCOAAL fans
-- General people like: homophobes, racists etc. Also PLS DON'T ASK ABT POLITICS ty!
+- General people like: homophobes, proshippers, racists basic criteria etc. Also PLS DON'T ASK ABT POLITICS thanks!
 - People who are rude in general
 - People copying my skins
 - I don't like pointing this out, but close friends (+ the person I'm mentioning without name) of someone who I had drama months ago outside and in PT in TADC fandom. They probably know who I am talking about, but I don't wanna get into this conversation again (if you're one of them, fuck you if you're reading this btw) and this also made a scar on me so please DNI thank you!
