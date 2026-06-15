@@ -55,7 +55,8 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 - Forsaken fans (this is more to minors because they are weird sometimes ngl)
 - MINORS who are in 18+ server (I think it's obvious why '-')
 - People who are harassing my friends
-- KittenSneeze fans (and that AU she made with Pomni), I liked her one song before but omg she made a mess and all and it's just wild how people still like her 
+- KittenSneeze fans (and that AU she made with Pomni), I liked her one song before but omg she made a mess and all and it's just wild how people still like her
+- Strade kins or whatever people who relate to him, like...who could be relating to that weirdo bruhh
 
 IWC:
 - People below 18 years old, I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
