@@ -68,6 +68,7 @@ Stuff I'm into so far:
 
 - Gameoverse (Almost any Glitch show ngl)
 - Uma Musume (a bit, I got a little rusty in game lately sorry)
+- Monkey Wrench
 - Madoka Magica
 - Animal Crossing (mostly New Leaf because I only own 3DS)
 - Severance
