@@ -9,7 +9,7 @@ Hiya, you can call me Soda or Clover!
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=2CBAF7&width=435&lines=%22The+boy%2C+the+boy's+in+love...%22" alt="Typing SVG" /></a>
 
 
-Since I'm not good at making Carrd or other websites I decided to make some stuff abt me here! ![tumblr_16c879c06c5986e4fd952400599aff07_50d3cffa_75](https://github.com/user-attachments/assets/d2247201-2012-4991-855d-e2c598a88562) 
+𝐒𝐢𝐧𝐜𝐞 𝐈'𝐦 𝐧𝐨𝐭 𝐠𝐨𝐨𝐝 𝐚𝐭 𝐦𝐚𝐤𝐢𝐧𝐠 𝐂𝐚𝐫𝐫𝐝 𝐨𝐫 𝐨𝐭𝐡𝐞𝐫 𝐰𝐞𝐛𝐬𝐢𝐭𝐞𝐬 𝐈 𝐝𝐞𝐜𝐢𝐝𝐞𝐝 𝐭𝐨 𝐦𝐚𝐤𝐞 𝐬𝐨𝐦𝐞 𝐬𝐭𝐮𝐟𝐟 𝐚𝐛𝐭 𝐦𝐞 𝐡𝐞𝐫𝐞! ![tumblr_16c879c06c5986e4fd952400599aff07_50d3cffa_75](https://github.com/user-attachments/assets/d2247201-2012-4991-855d-e2c598a88562) 
 
 
 
@@ -40,7 +40,7 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 - I tend to avoid groups so if I suddenly leave, you know probably why. I just don't like it.
 
 
-![tumblr_da08077939a1d3b803d2d44b93e0ac63_7bbcff3b_75](https://github.com/user-attachments/assets/d22f9dce-9324-4e8b-9ff1-2d8dbcae6461) DNI: ![tumblr_f768a9798216e7242c4a6dc45c419258_67afbb3c_75](https://github.com/user-attachments/assets/dec2107c-e1fc-4ec9-ab13-f4add4a787b5)
+![tumblr_da08077939a1d3b803d2d44b93e0ac63_7bbcff3b_75](https://github.com/user-attachments/assets/d22f9dce-9324-4e8b-9ff1-2d8dbcae6461) 𝐃 𝐍 𝐈: ![tumblr_f768a9798216e7242c4a6dc45c419258_67afbb3c_75](https://github.com/user-attachments/assets/dec2107c-e1fc-4ec9-ab13-f4add4a787b5)
 
 - Alex's Playhouse fans
 - TCOAAL fans
@@ -58,19 +58,19 @@ Since I'm not good at making Carrd or other websites I decided to make some stuf
 - KittenSneeze fans (and that AU she made with Pomni), I liked her one song before but omg she made a mess and all and it's just wild how people still like her
 - Strade kins or whatever people who relate to him, like...who could be relating to that weirdo bruhh
 
-IWC:
+𝐈𝐖𝐂:
 - People below 18 years old, I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
 - Hazbin fans sort of, I like cosplays of ppl but that's pretty much it, I don't hate someone liking it tho
 - I sometimes need some time alone, so I probably move somewhere alone, but please don't cover me or bother when I have DNI, thank you!
 - South Park fans
 
-Stuff I'm into so far:
+𝐒𝐭𝐮𝐟𝐟 𝐈'𝐦 𝐢𝐧𝐭𝐨 𝐬𝐨 𝐟𝐚𝐫:
 
 - Gameoverse (Almost any Glitch show ngl)
 - Uma Musume (a bit, I got a little rusty in game lately sorry)
 - Monkey Wrench
 - Madoka Magica
-- Animal Crossing (mostly New Leaf because I only own 3DS)
+- Animal Crossing
 - Severance
 - The Maxx
 - Ena (Season 1 and 2 obv!)
