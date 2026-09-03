@@ -47,19 +47,15 @@ Hiya, you can call me Soda or Clover!
 - General people like: homophobes, proshippers, racists basic criteria etc. Also PLS DON'T ASK ABT POLITICS thanks!
 - People who are rude in general
 - People copying my skins
-- I don't like pointing this out, but close friends (+ the person I'm mentioning without name) of someone who I had drama months ago outside and in PT in TADC fandom. They probably know who I am talking about, but I don't wanna get into this conversation again (if you're one of them, fuck you if you're reading this btw) and this also made a scar on me so please DNI thank you!
 - TADC fans, but mainly the ones from Safe 1 (I like cosplays of ppl but that's pretty much it, though you good if you like it and we good too). I have bad experience with them and I saw there's still some toxicity going around there with copying styles, dramas etc.
 - Also people who 100% relate to Jax, dude deserved for what he did in the show and you cannot convince me otherwise 😭😭
 - Horndogs,Genital,NSFW in general ponies & people who tries to have pony sex (idc if it's for jokes, you're getting blocked or hidden)
-- DSMP fans
-- Forsaken fans (this is more to minors because they are weird sometimes ngl)
-- MINORS who are in 18+ server (I think it's obvious why '-')
+- MINORS(+ minors in 18+ server '-') I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
 - People who are harassing my friends
 - KittenSneeze fans (and that AU she made with Pomni), I liked her one song before but omg she made a mess and all and it's just wild how people still like her
 - Strade kins or whatever people who relate to him, like...who could be relating to that weirdo bruhh
 
 𝐈𝐖𝐂:
-- People below 18 years old, I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
 - Hazbin fans sort of, I like cosplays of ppl but that's pretty much it, I don't hate someone liking it tho
 - I sometimes need some time alone, so I probably move somewhere alone, but please don't cover me or bother when I have DNI, thank you!
 - South Park fans
