@@ -62,8 +62,7 @@ Hiya, you can call me Soda or Clover!
 
 𝐒𝐭𝐮𝐟𝐟 𝐈'𝐦 𝐢𝐧𝐭𝐨 𝐬𝐨 𝐟𝐚𝐫:
 
-- Gameoverse (Almost any Glitch show ngl)
-- Uma Musume (a bit, I got a little rusty in game lately sorry)
+- Space King
 - Monkey Wrench
 - Madoka Magica
 - Animal Crossing
