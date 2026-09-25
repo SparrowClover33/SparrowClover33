@@ -11,21 +11,6 @@ Hiya, you can call me Soda or Clover!
 
 𝐒𝐢𝐧𝐜𝐞 𝐈'𝐦 𝐧𝐨𝐭 𝐠𝐨𝐨𝐝 𝐚𝐭 𝐦𝐚𝐤𝐢𝐧𝐠 𝐂𝐚𝐫𝐫𝐝 𝐨𝐫 𝐨𝐭𝐡𝐞𝐫 𝐰𝐞𝐛𝐬𝐢𝐭𝐞𝐬 𝐈 𝐝𝐞𝐜𝐢𝐝𝐞𝐝 𝐭𝐨 𝐦𝐚𝐤𝐞 𝐬𝐨𝐦𝐞 𝐬𝐭𝐮𝐟𝐟 𝐚𝐛𝐭 𝐦𝐞 𝐡𝐞𝐫𝐞! ![tumblr_16c879c06c5986e4fd952400599aff07_50d3cffa_75](https://github.com/user-attachments/assets/d2247201-2012-4991-855d-e2c598a88562) 
 
-
-
-
-- I like collecting LPS, keychains, stickers etc.
-
-- I can get a bit overwhelmed about some stuff, so please try to understand if I might go slow or suddenly off when someone wants to talk to me, thank you!
-
-- I like drawing sometimes, but I'm sadly not talented like artists
-
-- I like listening to music!
-
-- My favourite animals are birbs! Specific sparrows (duh), magpies, crows, ravens, barn owls and rooks! 
-
-- I'm a sweet tooth... ![tumblr_08bcfb518846e68c85550fbe79acb569_ee2b80f7_75](https://github.com/user-attachments/assets/56c24f4a-019a-497f-8be4-aa935139aa3c)
-
 .
                                      **Small beware before you interact with me:**
 
@@ -48,17 +33,11 @@ Hiya, you can call me Soda or Clover!
 - People who are rude in general
 - People copying my skins
 - TADC fans, but mainly the ones from Safe 1 (I like cosplays of ppl but that's pretty much it, though you good if you like it and we good too). I have bad experience with them and I saw there's still some toxicity going around there with copying styles, dramas etc.
-- Also people who 100% relate to Jax, dude deserved for what he did in the show and you cannot convince me otherwise 😭😭
 - Horndogs,Genital,NSFW in general ponies & people who tries to have pony sex (idc if it's for jokes, you're getting blocked or hidden)
 - MINORS(+ minors in 18+ server '-') I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
-- People who are harassing my friends
-- KittenSneeze fans (and that AU she made with Pomni), I liked her one song before but omg she made a mess and all and it's just wild how people still like her
+- People who are harassing my friend
+- KittenSneeze fans (and that AU she made with Pomni), I liked her one song before but omg she made a mess and all and it's just wild how people still like her...DNI DNI!
 - Strade kins or whatever people who relate to him, like...who could be relating to that weirdo bruhh
-
-𝐈𝐖𝐂:
-- Hazbin fans sort of, I like cosplays of ppl but that's pretty much it, I don't hate someone liking it tho
-- I sometimes need some time alone, so I probably move somewhere alone, but please don't cover me or bother when I have DNI, thank you!
-- South Park fans
 
 𝐒𝐭𝐮𝐟𝐟 𝐈'𝐦 𝐢𝐧𝐭𝐨 𝐬𝐨 𝐟𝐚𝐫:
 
