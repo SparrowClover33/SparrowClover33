@@ -57,13 +57,16 @@ I'm not giving Discord so far to randoms, hope you understand. Ask for it if you
 I don't have ata or since I am bad person and I don't want much randoms to interact with me anonymously or anything.
 
 I think that's all, BAII!!
-(Yamper pic made by me)
+(small pictures from trips below)
 
 ![tumblr_3f9c83bd7615bf759a0209847fe547cf_599b8103_500](https://github.com/user-attachments/assets/fc3a5921-98f0-4c3c-b04a-8fb2d4e07927)
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B81414&width=435&lines=%22Come+on+and+kill+me+baby...;...While+you+smile+like+a+friend.%22" alt="Typing SVG" /></a>
 
+
 ![IMG_20250502_113105](https://github.com/user-attachments/assets/cdd29b8a-a14f-4579-aa42-bb3f449093eb)
+<img width="4160" height="1920" alt="IMG_20261008_100725" src="https://github.com/user-attachments/assets/d888df78-5f2c-4e7e-aeb1-a75004ca38bc" />
+
 
 
 
