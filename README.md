@@ -32,21 +32,16 @@ Hiya, you can call me Soda or Clover!
 - General people like: homophobes, proshippers, racists basic criteria etc. Also PLS DON'T ASK ABT POLITICS thanks!
 - People who are rude in general
 - People copying my skins
-- TADC fans, but mainly the ones from Safe 1 (I like cosplays of ppl but that's pretty much it, though you good if you like it and we good too). I have bad experience with them and I saw there's still some toxicity going around there with copying styles, dramas etc.
 - Horndogs,Genital,NSFW in general ponies & people who tries to have pony sex (idc if it's for jokes, you're getting blocked or hidden)
 - MINORS(+ minors in 18+ server '-') I often hang out anyways in 18+, but just please then keep interactions to minimum after I compliment you or something before adding me on PT or somewhere else
-- People who are harassing my friend
-- KittenSneeze fans (and that AU she made with Pomni), I liked her one song before but omg she made a mess and all and it's just wild how people still like her...DNI DNI!
 - Strade kins or whatever people who relate to him, like...who could be relating to that weirdo bruhh
 
 𝐒𝐭𝐮𝐟𝐟 𝐈'𝐦 𝐢𝐧𝐭𝐨 𝐬𝐨 𝐟𝐚𝐫:
 
-- Space King
+- Calling All Villains
 - Monkey Wrench
 - Madoka Magica
 - Animal Crossing
-- Severance
-- The Maxx
 - Ena (Season 1 and 2 obv!)
 - There's few more, so ask! I don't bite haha!
   
